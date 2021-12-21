@@ -1,1 +1,1 @@
-https://nagireddy-seelam.github.io/2nd-project/
+https://nagireddy-seelam.github.io/voice-operating-email/
